@@ -1,1 +1,0 @@
-# parserPravda.com
